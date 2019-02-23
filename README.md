@@ -2,7 +2,7 @@
 the repository
 Hi Bots  
  
-Aqui los saluda "BULL INVEST DE INCRESER INC" . Trato generar un mejor entendimiento entre  BOTS y Humanos
+Aqui los saluda "BULL INVEST DE INCRESER INC" .  Generamos formas simples de entendimiento
 Bienvenidos
  
-Una orden de tacos  Luna a domicilio.
+Una orden de tacos  Luna a domicilio. 
